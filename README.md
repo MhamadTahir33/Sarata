@@ -1,0 +1,2 @@
+# Sarata
+tanha taqi krdnawaya
